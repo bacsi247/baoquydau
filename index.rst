@@ -2,7 +2,7 @@
 Hẹp viêm, dài bao quy đầu là gì? Tại sao bị hẹp, dài bao quy đầu
 =====
 
-Bao quy đầu là vùng đầu dương vật, ở đây có 1 bao da mỏng trùm lên quy đầu cùng với lỗ tiểu gọi là da bao quy đầu. Bình thường lúc "cậu nhỏ" cương cứng, bao quy đầu bị lộn lên cùng với để hở ra khu vực lỗ tiểu cũng như quy đầu. Trong một số trường hợp, khi bao da quy đầu bị hẹp bẩm sinh, khi quy đầu ở trạng thái bình thường hay khi cương cứng vẫn bị kẹt trong bao da quy đầu, khiến cho ứ đọng nước giải hoặc chất bẩn vùng đầu dương vật, tạo điều kiện thuận tiện cho virus phát triển và dẫn đến bệnh viêm bao quy đầu
+Bao quy đầu là vùng đầu dương vật, ở đây có 1 bao da mỏng trùm lên quy đầu cùng với lỗ tiểu gọi là da bao quy đầu. Bình thường lúc "cậu nhỏ" cương cứng, bao quy đầu bị lộn lên cùng với để hở ra khu vực lỗ tiểu cũng như quy đầu. Trong một số trường hợp, khi bao da quy đầu bị hẹp bẩm sinh, khi quy đầu ở trạng thái bình thường hay khi cương cứng vẫn bị kẹt trong bao da quy đầu, khiến cho ứ đọng nước giải hoặc chất bẩn vùng đầu dương vật, tạo điều kiện thuận tiện cho virus phát triển và dẫn đến bệnh viêm bao quy đầu  
 
 *Con tôi hiện nay 12 tuổi, gần đây, cháu bé có biểu hiện ngứa, mẩn đỏ.  Ở chỗ thoát nước tiểu. Theo như tìm hiểu, con tôi bị dài, hẹp bao quy đầu, dẫn tới viêm bao quy đầu Vậy xin hỏi bác sĩ con tôi có phải bị như vậy không? và có cách gì để khắc phục không?* **- Chị H Hà Nội chia sẻ -**
 
@@ -59,7 +59,7 @@ Một số yếu tố nguy cơ bị bao quy đầu bị hẹp bao gồm:
 
 Chưa có một số yếu tố nguy cơ bệnh không nghĩa là bạn không thể mắc bệnh hẹp bao quy đầu. Những dấu hiệu trên chỉ mang đặc điểm tham khảo. Bạn cần phải hỏi ý kiến bác sĩ chuyên khoa để nắm rõ chi tiết. hoặc bạn có thể đến cơ sở y tế gần nhất để có thể thực hiện việc cắt hẹp bao quy đầu
 
-[Bác sĩ tư vấn trực tiếp miễn phí]
+**=>** ` Cắt bao quy đầu hết khoảng bao nhiêu tiền? <https://infogram.com/cat-bao-quy-dau-co-gia-het-bao-nhieu-tien-1h0r6rqo0e3l4ek>`_
 
 -----
 Cách chữa hẹp bao quy đầu
@@ -213,6 +213,8 @@ Những biến chứng về viêm nhiễm quy đầu
 Một trong số các địa điểm thăm khám tiết niệu, khám bệnh nam khoa chất lượng được nam giới ở Thủ đô cũng như một số tỉnh lân cận tín nhiệm, lựa chọn trong nhiều năm qua đó là PHÒNG KHÁM ĐA KHOA HƯNG THỊNH. Đây là cơ sở y tế chuyên khoa sức khỏe sinh sản tại Hà Nội với hơn 40 năm kinh nghiệm, chăm sóc sức khỏe sinh sản tổng quan kết luận mọi lứa tuổi giới tính
 
 Phòng khám Hưng Thịnh quy tụ hệ thống y bác sĩ chuyên khoa giỏi, trình độ kỹ thuật vững vàng, từng đào tạo không ít năm tại nước ngoài; bác sĩ luôn đi mới đầu trong vấn đề dùng các cách, phương pháp hiện đại, tiên tiến để chữa và điều trị viêm bao quy đầu, bao quy đầu dài , hẹp,.... Điều này giúp người bị bệnh tiết kiệm thời gian xét nghiệm,  có được hiệu quả điều trị tốt hơn.
+
+**=>** ` Chi phí cắt bao quy đầu hết khoảng bao nhiêu?<https://infogram.com/chi-phi-cat-bao-quy-dau-het-bao-nhieu-tien-hien-nay-1h0r6rdp9dkl2ek?live>`_
 
 Rõ ràng,Phòng khám  Hưng Thịnh đang sử dụng phương pháp cắt bao quy đầu tại Mỹ, coi là hiện đại nhất Hiện nay với nhiều điểm mạnh như:
 
