@@ -21,7 +21,7 @@ Tình trạng này thường hay xảy ra ở những cơ thể không cắt bao
 
 Hẹp bao quy đầu thường không gây ra cảm giác đau. Tuy vậy, bao quy đầu thắt quá chặt có nguy cơ dẫn đến cản trở lúc đi tiểu hoặc chuyện "yêu". Bên cạnh đó, bao quy đầu hẹp có khả năng khiến cho bạn không dễ dàng làm sạch phần phía dưới bao quy đầu, rất  dễ xảy ra nhiễm trùng da, viêm bao quy đầu
 
-## Nguyên nhân dẫn tới hẹp bao quy đầu
+##Nguyên nhân dẫn tới hẹp bao quy đầu
 
 Bình thường, bao quy đầu của "cậu bé" ở trẻ từ 3 tới 4 tuổi có thể tuột xuống. Nhưng, những trẻ không thể thực hiện được Việc đó và dẫn đến hẹp bao quy đầu do:
 
@@ -33,7 +33,7 @@ Bình thường, bao quy đầu của "cậu bé" ở trẻ từ 3 tới 4 tuổ
     
 Tình trạng dài bao quy đầu cũng sẽ gây nên hẹp quy đầu
 
-## Những yếu tốt có khả năng gây hẹp bao quy đầu
+##Những yếu tốt có khả năng gây hẹp bao quy đầu
 
 Một số yếu tố nguy cơ bị bao quy đầu bị hẹp bao gồm:
 
