@@ -35,9 +35,9 @@ Bình thường, bao quy đầu của "cậu bé" ở trẻ từ 3 tới 4 tuổ
     
 Tình trạng dài bao quy đầu cũng sẽ gây nên hẹp quy đầu
 
-=====
-Những yếu tốt có khả năng gây hẹp bao quy đầu
-=====
+
+<h1>Những yếu tốt có khả năng gây hẹp bao quy đầu</h1>
+
 
 Một số yếu tố nguy cơ bị bao quy đầu bị hẹp bao gồm:
 
