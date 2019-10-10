@@ -21,7 +21,9 @@ Tình trạng này thường hay xảy ra ở những cơ thể không cắt bao
 
 Hẹp bao quy đầu thường không gây ra cảm giác đau. Tuy vậy, bao quy đầu thắt quá chặt có nguy cơ dẫn đến cản trở lúc đi tiểu hoặc chuyện "yêu". Bên cạnh đó, bao quy đầu hẹp có khả năng khiến cho bạn không dễ dàng làm sạch phần phía dưới bao quy đầu, rất  dễ xảy ra nhiễm trùng da, viêm bao quy đầu
 
-##Nguyên nhân dẫn tới hẹp bao quy đầu
+=====
+Nguyên nhân dẫn tới hẹp bao quy đầu
+=====
 
 Bình thường, bao quy đầu của "cậu bé" ở trẻ từ 3 tới 4 tuổi có thể tuột xuống. Nhưng, những trẻ không thể thực hiện được Việc đó và dẫn đến hẹp bao quy đầu do:
 
@@ -33,7 +35,9 @@ Bình thường, bao quy đầu của "cậu bé" ở trẻ từ 3 tới 4 tuổ
     
 Tình trạng dài bao quy đầu cũng sẽ gây nên hẹp quy đầu
 
-##Những yếu tốt có khả năng gây hẹp bao quy đầu
+=====
+Những yếu tốt có khả năng gây hẹp bao quy đầu
+=====
 
 Một số yếu tố nguy cơ bị bao quy đầu bị hẹp bao gồm:
 
@@ -52,7 +56,9 @@ Chưa có một số yếu tố nguy cơ bệnh không nghĩa là bạn không t
 
 [Bác sĩ tư vấn trực tiếp miễn phí]
 
-##Cách chữa hẹp bao quy đầu
+=====
+Cách chữa hẹp bao quy đầu
+=====
 
 Bao quy đầu bị hẹp nếu không dẫn tới dấu hiệu gì thì có nguy cơ không cần chữa, nhất là tại trẻ nhỏ. Nhưng, nếu bệnh tình của trẻ không phát triển hay trẻ gặp khắt khe khi tiểu tiện và rửa ráy, bạn có thể dùng những dạng kem bôi
 
@@ -63,11 +69,15 @@ Bạn nên duy trì lối sống lành mạnh, hoạt động thể thao và tr�
 
 Tìm cách giải quyết căng thẳng trong các mối quan hệ. Bên cạnh đó, cải thiện mối quan hệ với bạn đời và chăm sóc sức khỏe bản thân.
 
-##Viêm bao quy đầu là gì?
+=====
+Viêm bao quy đầu là gì?
+=====
 
 Viêm bao quy đầu là trạng thái sưng, đau tức hay khó chịu ở quy đầu. Bệnh này thường hay xảy ra ở nam giới không cắt bao da quy đầu hay bị hẹp bao quy đầu, bao quy đầu dài
 
-##Một số biểu hiện của viêm bao quy đầu bao gồm:
+=====
+Một số biểu hiện của viêm bao quy đầu bao gồm:
+=====
 
     - Đỏ, sưng ở đầu "cậu nhỏ" hay bao quy đầu
     - Cảm giác đau, không dễ dàng đi giải
@@ -78,7 +88,9 @@ Bao quy đầu có thể trở thành đỏ, sưng và đau khi chạm vào. N�
 
 Bạn có thể bắt gặp các dấu hiệu nhận biết cùng với dấu hiệu nhận biết không đề cập tại đây. Nếu bạn có bất kỳ câu hỏi nào về một số triệu chứng của bệnh viêm bao quy đàu, hãy thao khảo ý kiến bác sĩ chuyên khoa.
 
-##Những nguyên nhân phổ biến dẫn đến bệnh viêm nhiễm bao quy đầu
+=====
+Những nguyên nhân phổ biến dẫn đến bệnh viêm nhiễm bao quy đầu
+=====
 
     - Viêm nhiễm hoặc nấm
 
@@ -100,7 +112,9 @@ Bệnh viêm quy đầu tương đối thường gặp cùng với chi phối đ
 
 [Bác sĩ tư vấn trực tiếp miễn phí]
 
-##Những yếu tốt nguy cơ làm tăng viêm nhiễm bao quy đầu
+=====
+Những yếu tốt nguy cơ làm tăng viêm nhiễm bao quy đầu
+=====
 
 Những yếu tố khiến cho tăng nguy cơ bị bệnh viêm quy đầu có nguy cơ là do:
 
@@ -108,17 +122,23 @@ Những yếu tố khiến cho tăng nguy cơ bị bệnh viêm quy đầu có n
 
     - Bị một số bệnh lây truyền qua những con đường tình dục như bệnh Herpes hoặc bệnh lậu
 
-##Những phương pháp điều trị viêm quy đầu
+=====
+Những phương pháp điều trị viêm quy đầu
+=====
 
 Bác sĩ sẽ coi tiền sử bệnh lý cùng với kiểm tra sức khỏe. Trong 1 số trường hợp, bác sĩ chuyên khoa có thể lấy mủ ở đầu dương vật để thăm khám được coi tác nhân gây nên bệnh có phải là vi khuẩn hay nấm hay không. Chuyên gia cũng có nguy cơ thử máu nếu bệnh nhân nhiễm bệnh trầm trọng như tiểu đường hoặc giang mai.
 
-##Các biện pháp nào sử dụng để trị viêm quy đầu?
+=====
+Các biện pháp nào sử dụng để trị viêm quy đầu?
+=====
 
 Liệu trình chữa trị tùy thuộc vào độ tuổi cũng như tác nhân. Những trường hợp nhẹ chỉ nên thoa kem kháng sinh. Với các trường hợp trầm trọng hơn hay bị tiểu đường, người bị bệnh có khả năng nên sử dụng thuốc kháng sinh, kem cũng được lấy để làm giảm sưng. Hiếm thì có tình huống người bị bệnh nhất thiết tiểu phẫu cắt bao quy đầu
 
 Thời điểm bình phục tùy vào tác nhân gây ra bệnh cùng với biểu hiện của người bị bệnh. Tại những trường hợp nhẹ, những dấu hiệu sẽ giảm dần hay nguy hiểm nhất không còn nữa sau 5 đến 10 ngày. Tại một số trường hợp nặng, thời điểm bình phục có nguy cơ sẽ lâu hơn.
 
-##Những cách có thể chữa, khắc phục bị viêm bao quy đầu
+=====
+Những cách có thể chữa, khắc phục bị viêm bao quy đầu
+=====
 
 *Những thói quyen nào giúp cho bạn hạn chế diễn biến của viêm quy đầu?*
 
@@ -154,17 +174,17 @@ Nếu như bạn có bất cứ câu hỏi nào, hãy tham khảo ý kiến bác
 
 Theo bác sĩ chuyên khoa nam học tại Phòng khám Hưng Thịnh – 380 Xã Đàn - Đống Đa – Hà Nội, dài bao quy đầu cực kỳ nguy hiểm, vì tình trạng này có thể dẫn đến một số biến chứng sau:
 
-
-   ##Những biến chứng về viêm nhiễm quy đầu  như:
-
+=====
+Những biến chứng về viêm nhiễm quy đầu
+=====
 
 + viêm nhiễm bao quy đầu: Chủ yếu nước giải cùng một số bựa sinh dục tích tụ lâu ngày trong bao quy đầu là môi trường thuận lợi cho vi rút sinh sôi cùng với dẫn tới viêm nhiễm.
 
-
 + Nhiễm khuẩn ngược dòng dẫn đến bệnh viêm niệu đạo, bị viêm bàng quang, bệnh tuyến tiền liệt, viêm mào tinh hoàn – tinh hoàn, viêm túi tinh…
 
-   ###Bị viêm bao quy đầu bởi vì bị dài bao quy đầu
-
+   -----
+   Bị viêm bao quy đầu bởi vì bị dài bao quy đầu
+   -----
 
     "Cậu bé" không dễ tiến triển bình thường: trở ngại quá trình tiến triển của "cậu bé", "cậu nhỏ" dễ bị ngắn, cong hay vẹo…
 
@@ -186,7 +206,9 @@ Theo bác sĩ chuyên khoa nam học tại Phòng khám Hưng Thịnh – 380 X�
 
    - Nhiễm trùng sang bạn tình: dài bao quy đầu dẫn đến viêm; những căn nguyên gây ra bệnh dễ thâm nhập truy cập "cô bé" nữ giới khi giao hợp tình dục, khả năng gây: viêm âm đạo – âm hộ, viêm lộ tuyến cổ tử cung, viêm cổ tử cung… chi phối tới sức khỏe cùng với khả năng có con.
 
-##Địa chỉ Cắt dài, hẹp bao quy đầu, viêm bao quy đầu ở đâu an toàn và uy tín
+=====
+Địa chỉ Cắt dài, hẹp bao quy đầu, viêm bao quy đầu ở đâu an toàn và uy tín
+=====
 
 Một trong số các địa điểm thăm khám tiết niệu, khám bệnh nam khoa chất lượng được nam giới ở Thủ đô cũng như một số tỉnh lân cận tín nhiệm, lựa chọn trong nhiều năm qua đó là PHÒNG KHÁM ĐA KHOA HƯNG THỊNH. Đây là cơ sở y tế chuyên khoa sức khỏe sinh sản tại Hà Nội với hơn 40 năm kinh nghiệm, chăm sóc sức khỏe sinh sản tổng quan kết luận mọi lứa tuổi giới tính
 
