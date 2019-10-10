@@ -229,3 +229,6 @@ Rõ ràng,Phòng khám  Hưng Thịnh đang sử dụng phương pháp cắt bao
    - Không đe dọa đến cấu trúc và chức năng của cơ quan sinh dục.
 
 Toàn bộ quá trình xét nghiệm cùng với chữa trị đều được làm theo đúng quy tắc của Bộ Y tế, giữ gìn rửa ráy và điều kiện vô trùng vô khuẩn. Hiểu biết cá nhân bảo mật tuyệt đối. Mức chi phí niêm yết công khai minh bạch đặc trưng.
+
+**Xem thêm:** 
+https://trello.com/catbaoquydauodautotnhat/
