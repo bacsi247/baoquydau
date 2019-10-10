@@ -1,4 +1,6 @@
-#Hẹp viêm, dài bao quy đầu là gì? Tại sao bị hẹp, dài bao quy đầu
+=====
+Hẹp viêm, dài bao quy đầu là gì? Tại sao bị hẹp, dài bao quy đầu
+=====
 
 Bao quy đầu là vùng đầu dương vật, ở đây có 1 bao da mỏng trùm lên quy đầu cùng với lỗ tiểu gọi là da bao quy đầu. Bình thường lúc "cậu nhỏ" cương cứng, bao quy đầu bị lộn lên cùng với để hở ra khu vực lỗ tiểu cũng như quy đầu. Trong một số trường hợp, khi bao da quy đầu bị hẹp bẩm sinh, khi quy đầu ở trạng thái bình thường hay khi cương cứng vẫn bị kẹt trong bao da quy đầu, khiến cho ứ đọng nước giải hoặc chất bẩn vùng đầu dương vật, tạo điều kiện thuận tiện cho virus phát triển và dẫn đến bệnh viêm bao quy đầu
 
@@ -15,7 +17,9 @@ Bao quy đầu là vùng đầu dương vật, ở đây có 1 bao da mỏng tr�
 
 Để chị có thể hiểu rõ hơn về bệnh hẹp, viêm bao quy đầu, mời chị và bạn đọc cùng tham khảo qua bài viết dưới đây:
 
-##Tại sao bị hẹp bao quy đầu
+=====
+Tại sao bị hẹp bao quy đầu
+=====
 
 Hẹp bao quy đầu là tình trạng da bao quy đầu mắc thắt chặt và chưa thể kéo tụt xuống để cho đầu dương vật lộ ra, mặc dù "cậu nhỏ" đang cương. Bao quy đầu hẹp gây nên cản trở khi đi đái, vận động tình dục cùng với tăng nguy cơ viêm nhiễm đường tiết niệu.
 
