@@ -59,7 +59,7 @@ Một số yếu tố nguy cơ bị bao quy đầu bị hẹp bao gồm:
 
 Chưa có một số yếu tố nguy cơ bệnh không nghĩa là bạn không thể mắc bệnh hẹp bao quy đầu. Những dấu hiệu trên chỉ mang đặc điểm tham khảo. Bạn cần phải hỏi ý kiến bác sĩ chuyên khoa để nắm rõ chi tiết. hoặc bạn có thể đến cơ sở y tế gần nhất để có thể thực hiện việc cắt hẹp bao quy đầu
 
-**=>** ` Cắt bao quy đầu hết khoảng bao nhiêu tiền? <https://infogram.com/cat-bao-quy-dau-co-gia-het-bao-nhieu-tien-1h0r6rqo0e3l4ek>`_
+**=>** `Cắt bao quy đầu hết khoảng bao nhiêu tiền? <https://infogram.com/cat-bao-quy-dau-co-gia-het-bao-nhieu-tien-1h0r6rqo0e3l4ek>`_
 
 -----
 Cách chữa hẹp bao quy đầu
@@ -214,7 +214,7 @@ Một trong số các địa điểm thăm khám tiết niệu, khám bệnh nam
 
 Phòng khám Hưng Thịnh quy tụ hệ thống y bác sĩ chuyên khoa giỏi, trình độ kỹ thuật vững vàng, từng đào tạo không ít năm tại nước ngoài; bác sĩ luôn đi mới đầu trong vấn đề dùng các cách, phương pháp hiện đại, tiên tiến để chữa và điều trị viêm bao quy đầu, bao quy đầu dài , hẹp,.... Điều này giúp người bị bệnh tiết kiệm thời gian xét nghiệm,  có được hiệu quả điều trị tốt hơn.
 
-**=>** ` Chi phí cắt bao quy đầu hết khoảng bao nhiêu?<https://infogram.com/chi-phi-cat-bao-quy-dau-het-bao-nhieu-tien-hien-nay-1h0r6rdp9dkl2ek?live>`_
+**=>** `Chi phí cắt bao quy đầu hết khoảng bao nhiêu? <https://infogram.com/chi-phi-cat-bao-quy-dau-het-bao-nhieu-tien-hien-nay-1h0r6rdp9dkl2ek?live>`_
 
 Rõ ràng,Phòng khám  Hưng Thịnh đang sử dụng phương pháp cắt bao quy đầu tại Mỹ, coi là hiện đại nhất Hiện nay với nhiều điểm mạnh như:
 
